@@ -1,5 +1,5 @@
-[Экзамен Planificarea Aplicațiilor Deckstop.docx](https://github.com/user-attachme<img width="1013" height="595" alt="Screenshot 2025-12-24 165801" src="https://github.com/user-attachments/assets/da0d6e41-80fb-4acf-845a-5cee19d4938e" />
-nts/files/24330940/Planificarea.Aplica.iilor.Deckstop.docx)
+[Экзамен Planificarea Aplicațiilor Deckstop.docx](https://github.com/user-attachments/files/24330960/Planificarea.Aplica.iilor.Deckstop.docx)
+
 <img width="807" height="63" alt="Screenshot 2025-12-24 165404" src="https://github.com/user-attachments/assets/42473a48-db83-49f0-b7fb-8f8c75ec637c" />
 <img width="336" height="464" alt="Screenshot 2025-12-24 165346" src="https://github.com/user-attachments/assets/8710ffcb-8529-4960-b9d2-4acadd60dfa5" />
 <img width="122" height="73" alt="Sc<img width="836" height="92" alt="Screenshot 2025-12-24 165454" src="https://github.com/user-attachments/assets/f50436a9-141d-428e-9d5e-d045a7c4b90d" />
